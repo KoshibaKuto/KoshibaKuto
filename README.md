@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @KoshibaKuto real name Alison
 - 👀 I’m interested in Games
 - 🌱 I’m currently learning Hacking
-- 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me by nothing
-- 😄 Pronouns: She, They, Them
+- 💞️ I love ur Smile!
+- 😄 Pronouns: She/Her
 - ⚡ Fun fact: I see Bl/Gl couple moments in my house everyday
 
 <!---
